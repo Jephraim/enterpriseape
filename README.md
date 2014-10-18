@@ -6,7 +6,7 @@ Powerful Software
 
 ### Welcome to the repository
 
-Feel free to access [my linkedin](www.linkedin.com/in/jasonephraim/.
+Feel free to access [my linkedin](www.linkedin.com/in/jasonephraim/).
 
 > ##The best things in life are *free*.
 >
